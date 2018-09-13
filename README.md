@@ -1,0 +1,1 @@
+August_2017-_Multi-sensor_data_fusion_in_mobile_devices_for_the_identification_of_activities_of_daily_living
